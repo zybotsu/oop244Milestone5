@@ -1,4 +1,6 @@
 # oop244Milestone5
 
 
-✋✋✋ PLEASE DO NOT COPY. ✋✋✋ It is just can be a reference
+⚠️ Warning!!! PLEASE DO NOT COPY. 
+
+🛑Copying is an act of PLAGIARISM. 🛑
